@@ -10,3 +10,11 @@ I enjoy learning new skills and taking on challenges that help me grow as a deve
 
 Feel free to connect with me—I love meeting fellow tech enthusiasts!
 
+📫 **Get in Touch**  
+- **Email:** [sandeepkumarssk9o1@gmail.com](mailto:sandeepkumarssk9o1@gmail.com)  
+- **LinkedIn:** [linkedin.com/in/sandeep9o1](https://www.linkedin.com/in/sandeep9o1)  
+- **GitHub:** [github.com/ssandeep9o1](https://github.com/ssandeep9o1)
+
+🔗 **Other Links**  
+- [Resume (Google Drive)](https://drive.google.com/file/d/12qaex9ATWPofA8kNsci7h5e10R0n0VkQ/view?usp=sharing)
+
