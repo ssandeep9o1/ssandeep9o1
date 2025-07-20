@@ -16,5 +16,5 @@ Feel free to connect with me—I love meeting fellow tech enthusiasts!
 - **GitHub:** [github.com/ssandeep9o1](https://github.com/ssandeep9o1)
 
 🔗 **Other Links**  
-- [Resume (Google Drive)](https://drive.google.com/file/d/12qaex9ATWPofA8kNsci7h5e10R0n0VkQ/view?usp=sharing)
+- [Resume (Google Drive)](https://drive.google.com/file/d/191ugsJdqZUfRZIU6qW1nCgqom9q0GkRc/view?usp=sharing)
 
